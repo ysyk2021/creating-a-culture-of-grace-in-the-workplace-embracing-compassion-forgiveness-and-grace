@@ -12,7 +12,7 @@ We'll also discuss some common obstacles to creating a culture of grace, such as
 
 So let's dive in and explore how we can all help to create a more compassionate, forgiving, and gracious workplace culture.
 
-MingHai Zheng is a writer based in Wuhan, China, who focuses on writing articles about workplace and management topics. He has written hundreds of articles on these topics and is dedicated to sharing his insights and experiences with others who are interested in improving their careers and their businesses.
+MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
 
