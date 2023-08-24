@@ -1,5 +1,4 @@
 
-
 In today's fast-paced and competitive work environment, it can be easy to lose sight of our humanity. We often prioritize productivity, efficiency, and results over kindness, empathy, and compassion. This can create a culture of stress, pressure, and isolation, which can negatively impact both our mental health and our ability to work effectively.
 
 Creating a culture of grace in the workplace is all about embracing compassion, forgiveness, and grace. It's about treating ourselves and our colleagues with kindness and respect, even in the face of challenges and setbacks. It's about recognizing that we're all human beings with our own strengths, weaknesses, and struggles.

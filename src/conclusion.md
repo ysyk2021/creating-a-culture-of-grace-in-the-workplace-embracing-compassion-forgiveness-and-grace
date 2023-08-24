@@ -1,5 +1,4 @@
 
-
 As we come to the end of this book, we hope that you have gained a better understanding of the importance and benefits of creating a culture of grace in the workplace. In this final chapter, we will provide a recap of the key strategies for creating a culture of grace and some final thoughts and advice.
 
 Recap of Key Strategies for Creating a Culture of Grace
