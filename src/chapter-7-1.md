@@ -1,5 +1,3 @@
-Addressing Resistance and Skepticism
-==========================================================================================
 
 Creating a culture of grace in the workplace is not always an easy task. Despite best intentions, there may be resistance or skepticism from employees or leaders. This chapter will discuss strategies for overcoming barriers to a culture of grace and addressing resistance and skepticism.
 

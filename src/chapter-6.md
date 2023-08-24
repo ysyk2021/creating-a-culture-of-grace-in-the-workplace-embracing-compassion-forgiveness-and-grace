@@ -1,5 +1,3 @@
-Chapter 6: Building a Culture of Grace
-======================================
 
 Building a culture of grace in the workplace involves creating a supportive and nurturing environment that promotes personal and professional growth, collaboration, and teamwork. In this chapter, we will explore strategies for building a culture of grace.
 

@@ -1,5 +1,3 @@
-Developing Empathy and Compassion Through Grace
-=========================================================================================
 
 Developing a graceful mindset is the foundation of creating a culture of grace in the workplace. In this chapter, we will discuss how individuals can develop empathy and compassion through grace and cultivate a more positive and supportive work environment.
 

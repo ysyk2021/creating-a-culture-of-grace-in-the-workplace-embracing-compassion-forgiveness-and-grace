@@ -1,5 +1,3 @@
-Adapting to Changes in the Workplace
-======================================================================================
 
 Continuous improvement and evaluation are critical components of creating a culture of grace in the workplace. In this chapter, we will explore strategies for continuous improvement and evaluation and adapting to changes in the workplace.
 

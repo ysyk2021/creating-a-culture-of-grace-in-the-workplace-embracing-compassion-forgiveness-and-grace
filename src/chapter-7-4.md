@@ -1,5 +1,3 @@
-Handling Difficult Conversations and Feedback
-===================================================================================================
 
 Creating a culture of grace in the workplace can be challenging. Difficult conversations and feedback can present barriers to the implementation of a successful culture of grace. This chapter will discuss these barriers and provide strategies for overcoming them.
 

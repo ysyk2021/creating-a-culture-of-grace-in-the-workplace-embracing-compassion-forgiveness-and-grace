@@ -1,5 +1,3 @@
-Common Misconceptions About Grace in the Workplace
-===========================================================================
 
 While grace can have a profound impact on the workplace, there are also common misconceptions about what it means to embrace compassion, forgiveness, and kindness in a professional setting. In this chapter, we will explore some of the most common misconceptions about grace in the workplace.
 

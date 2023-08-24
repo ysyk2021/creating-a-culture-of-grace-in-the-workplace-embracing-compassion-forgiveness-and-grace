@@ -1,5 +1,3 @@
-Continuously Learning and Improving
-=====================================================================================
 
 Continuous improvement is a never-ending process that involves an ongoing effort to enhance workplace practices and behaviors. In this chapter, we will examine the importance of continuously learning and improving in the workplace.
 

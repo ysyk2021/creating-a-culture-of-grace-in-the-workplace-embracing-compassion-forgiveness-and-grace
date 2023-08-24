@@ -1,5 +1,3 @@
-Chapter 9: Continuous Improvement and Evaluation
-================================================
 
 Creating a culture of grace in the workplace is an ongoing effort that requires continuous learning, reflection, and improvement. In this chapter, we will explore strategies for evaluating and improving workplace culture.
 

@@ -1,5 +1,3 @@
-Techniques for Cultivating a Graceful Mindset
-=======================================================================================
 
 Developing a graceful mindset involves cultivating a mindset focused on compassion, forgiveness, and kindness towards oneself and others. In this chapter, we will explore techniques for developing a graceful mindset in the workplace.
 

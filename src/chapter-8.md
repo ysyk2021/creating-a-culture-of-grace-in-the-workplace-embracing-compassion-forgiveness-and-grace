@@ -1,5 +1,3 @@
-Chapter 8: Measuring Results and Learning from Experience
-=========================================================
 
 Measuring results and learning from experience are essential for creating a culture of grace in the workplace. In this chapter, we will explore strategies for tracking progress, reflecting on experiences, and continuously improving workplace culture.
 

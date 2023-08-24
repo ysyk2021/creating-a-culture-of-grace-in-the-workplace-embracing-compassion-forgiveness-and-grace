@@ -1,5 +1,3 @@
-Chapter 5: Embracing Forgiveness
-================================
 
 Forgiveness is a key component of creating a culture of grace in the workplace. In this chapter, we will explore strategies for understanding and embracing forgiveness in the workplace.
 

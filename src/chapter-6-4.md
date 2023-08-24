@@ -1,5 +1,3 @@
-Recognizing and Celebrating Successes
-=============================================================================
 
 Building a culture of grace in the workplace involves recognizing and celebrating successes. This chapter will discuss strategies for building a culture of grace through recognizing and celebrating successes.
 

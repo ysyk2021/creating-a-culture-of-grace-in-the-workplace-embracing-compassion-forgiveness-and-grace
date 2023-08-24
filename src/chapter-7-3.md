@@ -1,5 +1,3 @@
-Managing Change and Uncertainty
-=====================================================================================
 
 Managing change and uncertainty can be challenging, and it can present barriers to creating a culture of grace in the workplace. In this chapter, we will discuss how individuals and organizations can overcome these barriers by managing change and uncertainty with empathy, forgiveness, and kindness.
 

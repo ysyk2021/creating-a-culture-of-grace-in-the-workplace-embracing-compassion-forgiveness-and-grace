@@ -1,5 +1,3 @@
-Continuous Learning and Improvement
-==============================================================================================
 
 Creating a culture of grace in the workplace requires ongoing effort and commitment to continuous learning and improvement. In this chapter, we will explore the importance of learning from experience and continuously improving strategies for creating a culture of grace in the workplace.
 

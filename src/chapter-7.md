@@ -1,5 +1,3 @@
-Chapter 7: Overcoming Barriers to a Culture of Grace
-====================================================
 
 Overcoming barriers to building a culture of grace in the workplace requires addressing resistance and skepticism, dealing with negative attitudes and behavior, managing change and uncertainty, and handling difficult conversations and feedback. In this chapter, we will explore strategies for overcoming these barriers.
 

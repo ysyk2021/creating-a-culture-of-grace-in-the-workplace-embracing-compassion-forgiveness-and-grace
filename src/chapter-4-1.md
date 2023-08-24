@@ -1,5 +1,3 @@
-Understanding the Role of Compassionate Leadership in a Culture of Grace
-=============================================================================================================
 
 Compassionate leadership plays a vital role in creating a culture of grace in the workplace. In this chapter, we will discuss the importance of compassionate leadership and how it can help organizations cultivate an environment of empathy, forgiveness, and kindness.
 

@@ -1,5 +1,3 @@
-Managing Conflict and Difficult Situations
-============================================================================
 
 Conflict and difficult situations are inevitable in any workplace. However, how these situations are handled can have a significant impact on the workplace culture. In this chapter, we will discuss the importance of embracing forgiveness when managing conflict and difficult situations.
 

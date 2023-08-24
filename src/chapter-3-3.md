@@ -1,5 +1,3 @@
-Setting Realistic Goals and Objectives
-================================================================================
 
 Setting realistic goals and objectives is a crucial component of developing a graceful mindset in the workplace. When employees have clear and achievable goals, they are more likely to be productive, motivated, and engaged. In this chapter, we will discuss strategies for setting realistic goals and objectives to promote a culture of grace in the workplace.
 

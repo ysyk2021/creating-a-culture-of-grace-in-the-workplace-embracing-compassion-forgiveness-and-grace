@@ -1,5 +1,3 @@
-Encouraging Creativity and Innovation Through Grace
-========================================================================================
 
 Compassionate leadership can play a significant role in encouraging creativity and innovation in the workplace. In this chapter, we will discuss how compassionate leaders can use grace to foster a culture of creativity and innovation.
 

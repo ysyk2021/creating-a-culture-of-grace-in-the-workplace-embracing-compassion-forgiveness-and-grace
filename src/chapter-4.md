@@ -1,5 +1,3 @@
-Chapter 4: Compassionate Leadership
-===================================
 
 Compassionate leadership is critical for creating a culture of grace in the workplace. In this chapter, we will explore the importance of compassionate leadership and strategies for promoting compassion in the workplace.
 

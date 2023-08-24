@@ -1,5 +1,3 @@
-Utilizing Positive Self-Talk and Visualization
-========================================================================================
 
 Developing a graceful mindset in the workplace involves a positive outlook and the ability to envision success. Positive self-talk and visualization are essential tools for promoting a culture of grace in the workplace. In this chapter, we will discuss strategies for utilizing positive self-talk and visualization to develop a graceful mindset.
 

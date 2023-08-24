@@ -1,5 +1,3 @@
-Overview of Grace in the Workplace
-==============================================================================
 
 Grace is a concept that is often associated with spirituality and religion, but it can also be applied in the context of the workplace to create a positive and supportive work environment. In this chapter, we will provide an overview of grace in the workplace and its importance.
 

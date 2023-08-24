@@ -1,5 +1,3 @@
-Assessing Your Personal Approach to Grace
-=====================================================================================
 
 Grace is a concept that can be difficult to define, and its application in the workplace can vary from person to person. In this chapter, we will explore different approaches to grace in the workplace and provide a self-assessment tool for individuals to evaluate their personal approach to grace.
 

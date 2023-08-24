@@ -1,5 +1,3 @@
-Building Trust and Respect with Employees
-==============================================================================
 
 A culture of grace in the workplace starts at the top. Leaders who demonstrate compassion, forgiveness, and grace can create an environment where employees feel valued, respected, and supported. This chapter will discuss how leaders can build trust and respect with their employees through compassionate leadership.
 

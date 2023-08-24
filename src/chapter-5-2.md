@@ -1,5 +1,3 @@
-Developing Effective Strategies for Forgiving Others
-======================================================================================
 
 Forgiveness is a critical component of a culture of grace in the workplace. It involves letting go of the desire for revenge or punishment and moving towards healing and reconciliation. This chapter will discuss strategies for embracing forgiveness and developing effective strategies for forgiving others.
 

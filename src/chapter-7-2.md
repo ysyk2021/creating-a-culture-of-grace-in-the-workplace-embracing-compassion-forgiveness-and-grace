@@ -1,5 +1,3 @@
-Dealing with Negative Attitudes and Behavior
-==================================================================================================
 
 Creating a culture of grace in the workplace is not always easy. Negative attitudes and behaviors can sometimes get in the way of building a positive and supportive work environment. In this chapter, we will discuss how to overcome barriers to a culture of grace by dealing with negative attitudes and behavior.
 

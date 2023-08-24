@@ -1,4 +1,4 @@
-# Introduction
+
 
 In today's fast-paced and competitive work environment, it can be easy to lose sight of our humanity. We often prioritize productivity, efficiency, and results over kindness, empathy, and compassion. This can create a culture of stress, pressure, and isolation, which can negatively impact both our mental health and our ability to work effectively.
 

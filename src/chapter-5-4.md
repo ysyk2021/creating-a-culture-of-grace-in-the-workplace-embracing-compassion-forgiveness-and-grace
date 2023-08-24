@@ -1,5 +1,3 @@
-Overcoming Grudges and Resentment
-===================================================================
 
 Forgiveness can be a challenging concept to embrace in the workplace, especially when individuals have experienced conflict or hurt from others. However, by practicing forgiveness, individuals can let go of grudges and resentment and create a more positive, supportive work environment. In this chapter, we will explore the importance of forgiveness in the workplace, and provide practical tips for embracing forgiveness.
 

@@ -1,5 +1,3 @@
-Fostering Diversity and Inclusion in the Workplace
-=======================================================================================
 
 Compassionate leadership is essential for fostering a culture of grace in the workplace that embraces diversity and inclusion. Leaders who prioritize empathy, understanding, and acceptance can create an environment where all employees feel valued, respected, and supported. In this chapter, we will discuss strategies for fostering diversity and inclusion through compassionate leadership.
 

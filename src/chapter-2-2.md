@@ -1,5 +1,3 @@
-Understanding the Science Behind Grace and its Effects
-==================================================================================================
 
 Grace is often associated with religion and spirituality, but it can also have a significant impact in the workplace. In this chapter, we will define what grace means in the context of the workplace and explore the science behind its effects.
 

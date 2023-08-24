@@ -1,5 +1,3 @@
-Understanding the Benefits of Forgiveness in the Workplace
-============================================================================================
 
 Forgiveness is a crucial component of creating a culture of grace in the workplace. When employees feel that they can make mistakes without fear of retribution, they are more likely to take risks and be innovative. In this chapter, we will discuss the benefits of forgiveness in the workplace.
 

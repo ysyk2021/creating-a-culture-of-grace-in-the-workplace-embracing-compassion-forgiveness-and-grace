@@ -1,5 +1,3 @@
-Adapting to Changes in the Workplace
-===============================================================================================
 
 Measuring results and learning from experience is critical for creating a culture of grace in the workplace. In this chapter, we will explore the importance of measuring results and adapting to changes in the workplace.
 

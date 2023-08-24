@@ -1,5 +1,3 @@
-Chapter 3: Developing a Graceful Mindset
-========================================
 
 Developing a graceful mindset is essential for creating a culture of grace in the workplace. In this chapter, we will explore techniques for cultivating a graceful mindset, including positive self-talk, visualization, goal setting, and empathy.
 

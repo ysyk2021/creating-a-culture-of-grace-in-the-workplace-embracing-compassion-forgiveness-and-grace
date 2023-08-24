@@ -1,5 +1,3 @@
-Chapter 2: Defining Grace in the Workplace
-==========================================
 
 Defining grace in the workplace is an essential first step in creating a culture of grace. In this chapter, we will explore the concept of grace, its relevance in the workplace, and how individuals can assess their personal approach to grace.
 

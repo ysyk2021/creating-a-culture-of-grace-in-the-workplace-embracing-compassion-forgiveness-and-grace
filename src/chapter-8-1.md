@@ -1,5 +1,3 @@
-Tracking Progress and Measuring Results
-==================================================================================================
 
 In order to ensure that a culture of grace is being implemented successfully in the workplace, it is important to track progress and measure results. This chapter will discuss the various ways in which progress can be measured and how to learn from experience to continually improve.
 
